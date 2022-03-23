@@ -2,10 +2,10 @@
 
 ## Contact Info:
 
-**mob.phone:** +79174049850
-**E-mail:** ahmetzyanovra@gmail.com
-**Telegram:** @ra1n89
-**Discord:** Rishat Akhmetzyanov (@ra1n89)
+**mob.phone:** +79174049850  
+**E-mail:** ahmetzyanovra@gmail.com  
+**Telegram:** @ra1n89  
+**Discord:** Rishat Akhmetzyanov (@ra1n89)  
 
 ---
 
